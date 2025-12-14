@@ -2,7 +2,7 @@
 
  ---
 
-A little about me, thanks I didn't add to my straw or rentry:
+A little about me, things I didn't add to my straw or rentry:
 
 I’m Mic ,  an alter in the Meowatastic System. I don’t front very often unless our co-host, Mystic, is feeling really stressed or uncomfortable with fronting. I don’t usually play Ponytail, but since I actually enjoy it, I might start using it more often!
 
