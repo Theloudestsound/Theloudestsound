@@ -1,4 +1,4 @@
-* Hello!! Feel free to check out my SAW page and sign my ATA if you’d like! ✦
+* Hello!! Feel free to check out my STRAW page and sign my ATA if you’d like! ✦
 
  ---
 
