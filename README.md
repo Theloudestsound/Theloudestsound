@@ -1,4 +1,6 @@
-Hello!! Feel free to check out my SAW page and sign my ATA if you’d like! ✦
+* Hello!! Feel free to check out my SAW page and sign my ATA if you’d like! ✦
+
+ ---
 
 A little about me, thanks I didn't add to my straw or rentry:
 
