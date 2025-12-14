@@ -8,10 +8,6 @@ I’m Mic ,  an alter in the Meowatastic System. I don’t front very often unle
 
 My roles, in full explanation for anyone curious:
 
-Absolutely — here are **more in-depth but still clear** explanations that really spell out what each role means, without getting overwhelming:
-
----
-
 ✦ **Caretaker**
 "A caretaker alter focuses on the overall well-being of the system, both emotionally and mentally. This role often involves offering comfort, reassurance, and grounding when others are stressed, overwhelmed, or in distress. Caretakers may help with self-care reminders, emotional regulation, and creating a sense of safety during difficult moments. They tend to be more attentive to the needs of others in the system and may step in during high-stress situations to help stabilize emotions and prevent burnout or shutdowns."
 
