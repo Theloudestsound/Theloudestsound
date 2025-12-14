@@ -8,9 +8,16 @@ I’m Mic ,  an alter in the Meowatastic System. I don’t front very often unle
 
 My roles, in full explanation for anyone curious:
 
-✦ **Caretaker** —> A caretaker alter focuses on looking after the system’s emotional and mental well-being. This can include offering comfort, grounding others during stress, helping with self-care, and trying to keep things stable when emotions run high.
+Absolutely — here are **more in-depth but still clear** explanations that really spell out what each role means, without getting overwhelming:
 
-✦ **Boundary Manager** —> A boundary manager helps set, enforce, and protect personal boundaries for the system. This includes deciding what information is safe to share, when to say no, and stepping in if interactions become overwhelming or unsafe.
+---
+
+✦ **Caretaker**
+"A caretaker alter focuses on the overall well-being of the system, both emotionally and mentally. This role often involves offering comfort, reassurance, and grounding when others are stressed, overwhelmed, or in distress. Caretakers may help with self-care reminders, emotional regulation, and creating a sense of safety during difficult moments. They tend to be more attentive to the needs of others in the system and may step in during high-stress situations to help stabilize emotions and prevent burnout or shutdowns."
+
+✦ **Boundary Manager**
+"A boundary manager alter is responsible for establishing, communicating, and enforcing boundaries to keep the system safe. This includes deciding what personal information is okay to share, recognizing when conversations or situations become unhealthy, and stepping in to say no when needed. Boundary managers may limit interactions, end conversations, or redirect topics if something feels overwhelming or unsafe. If a boundary manager becomes more firm or direct, it is not meant to be rude, it is done to protect the system’s comfort, safety, and emotional health."
+
 
 ---
 
